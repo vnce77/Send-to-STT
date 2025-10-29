@@ -1,1 +1,1 @@
-
+https://americasmining.webex.com/wbxmjs/joinservice/sites/americasmining/meeting/download/47f6b071e1f14009beff7ed0619c607e?MTID=m026cf09bf7e5539faf49fbe312bc1abd
