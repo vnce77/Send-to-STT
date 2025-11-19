@@ -1,1 +1,1 @@
-https://tenmeetings.com.br/ten-events/#/webinar?evento=ConferenciadeResultados3T25-Randoncorp_963
+https://finance.yahoo.com/quote/BRDCF/earnings/BRDCF-Q3-2025-earnings_call-372730.html
