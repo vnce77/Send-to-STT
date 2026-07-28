@@ -1,1 +1,1 @@
-https://seekingalpha.com/article/4924972-axtel-s-a-b-de-c-v-cpos-axtlf-q2-2026-earnings-call-transcript
+https://seekingalpha.com/article/4925402-grupo-televisa-s-a-b-tv-q2-2026-earnings-call-transcript
