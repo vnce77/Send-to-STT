@@ -1,1 +1,6 @@
-https://investor.lamresearch.com/annual-reports-and-proxy
+
+Shareholders ask our Board of Directors to take the steps necessary to amend the appropriate company governing documents to give the owners of a combined 10% of our outstanding common stock the power to call a special shareholder meeting. Such a special shareholder meeting can be an easy to convene online shareholder meeting.
+The current LRCX special meeting rule has 2 factors each of which acting alone make a shareholder call for a special shareholder meeting unattainable:
+1. Require 20% of shares to support a shareholder call for a special shareholder meeting instead of the 10% figure in state law. 2. Disqualifying a substantial block of LRCX shares from being part of the 20% group.
+Shareholders of more than 100 companies shave voted on special shareholder meeting proposals and not one of 100 companies have cited even one example of a special meeting called for by shareholder ever actually taking place at a company that had just one of the 2 above requirements.
+Companies like to adopt the 20% requirement or the above disqualification clause because they know they will be perfectly safe from every actually having to conduct a shareholder called special shareholder meeting. LRCX has adopted both the 20% requirement and the above disqualification clause. Thus LRCX currently has the protection of 2 insurance policies that a special shareholder meeting called for by shareholders will never take place.
